@@ -1,2 +1,5 @@
-# 11th-english
-11th Standard English Text Book
+## Dev
+```sh
+./hugow --get-extended --get-latest
+./hugow server --ignoreCache --themesDir ../
+```

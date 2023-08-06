@@ -1,4 +1,4 @@
 ---
-title: 'confessions-of-born-spectato'
+title: 'The Portrait of a Lady'
 weight: 1
 ---
