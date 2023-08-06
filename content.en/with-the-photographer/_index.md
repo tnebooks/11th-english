@@ -1,4 +1,4 @@
 ---
-title: 'confessions-of-born-spectato'
-weight: 1
+title: 'With the Photographer'
+weight: 12
 ---

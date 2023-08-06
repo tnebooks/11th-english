@@ -1,4 +1,4 @@
 ---
-title: 'confessions-of-born-spectato'
-weight: 1
+title: 'A shot in the Dark'
+weight: 6
 ---

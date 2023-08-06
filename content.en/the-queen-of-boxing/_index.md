@@ -1,4 +1,4 @@
 ---
-title: 'confessions-of-born-spectato'
-weight: 1
+title: 'The Queen of boxing'
+weight: 4
 ---
