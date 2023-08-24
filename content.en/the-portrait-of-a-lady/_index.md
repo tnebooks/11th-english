@@ -44,6 +44,15 @@ But that was not so. After five years I came back home and was met by her at the
 
 
 In the evening a change came over her. She did not pray. She collected the women of the neighbourhood, got an old drum and started to sing. For several hours she thumped the sagging skins of the **dilapidated** drum and sang of the home-coming of warriors. We had to persuade her to stop to avoidoverstraining. That was the first time since I had known her that she did not pray.
-The next morning she was taken ill. It was a mild fever and the doctor told
+
+
+
+The next morning she was taken ill. It was a mild fever and the doctor told us that it would go. But my grandmother thought differently. She told us that her end was near. She said that, since only a few hours before the close of the last chapter of her life she had omitted to pray, she was not going to waste any more time talking to us.
+
+
+We protested. But she ignored our protests. She lay peacefully in bed praying and telling her beads. Even before we could suspect, her lips stopped moving and the rosary fell from her lifeless fingers. A peaceful **pallor** spread on her face and we knew that she was dead.
+
+
+We lifted her off the bed and, as is customary, laid her on the ground and covered her with a **red shroud**. After a few hours of mourning we left her alone to make arrangements for her funeral. In the evening we went to her room with a crude stretcher to take her to be cremated. The sun was setting and had lit her room and verandah with a blaze of golden light. We stopped half-way in the courtyard. All over the verandah and in her room right up to where she lay dead and stiff wrapped in the red shroud, thousands of sparrows sat scattered on the floor. There was no chirruping. We felt sorry for the birds and my mother fetched some bread for them. She broke it into little crumbs, the way my grandmother used to, and threw it to them. The sparrows took no notice of the bread. When we carried my grandmother’s corpse off, they flew away quietly. Next morning the sweeper swept the bread crumbs into the dustbin. 
 
 
