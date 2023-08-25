@@ -54,11 +54,4 @@ That you are not me and I’m not you”.
 
 **About the Author**
 ![](10.PNG)
-
-
-
-
-
-
-
-  
+**Frederic Ogden Nash** (August 19, 1902 – May 19, 1971) was an American poet well known for his light verse, of which he wrote over 500 pieces. With his unconventional rhyming schemes, he was declared the country’s best-known producer of humorous poetry. His light verse even earned him a place on a postage stamp. 
