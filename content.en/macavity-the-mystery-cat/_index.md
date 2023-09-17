@@ -75,4 +75,18 @@ Just controls their operations: the **Napoleon of Crime**.
 
 **About the Author**
 
- **defy **– to resist or to challenge bafflement – total confusion Scotland Yard – the headquarters of London Metropolitan Police Service Flying Squad – a police force ready to plunge into action levitation – the action of rising and floating in air fakir – a holy person who lives on alms and has the power to levitate ginger – a light brownish – orange colour fiend – demon feline – cat depravity – evil quality larder – cupboard for storing food rifle – ransack to steal Peke – a Pekinese dog Thomas Stearns Eliot (1888 – 1965) was an essayist, a critic, a playwright and a pioneering poet of the twentieth century. He attended Smith Academy in St. Louis and then Milton Academy in Massachusetts. He graduated from Harvard University and then left for France and the Sorbonne to study philosophy. He returned to Harvard and deepened his knowledge by reading Indian philosophy and studying Sanskrit. He also finished his advanced degree at Harvard. Some of his popular poems include ‘The Wasteland’, ‘Love Song of J. Alfred Prufrock’, ‘Ash Wednesday’, ‘Four Quartets’, ‘Journey of the Magi’, ‘After Strange Gods’ and ‘Naming of Cats’. He won the Order of Merit and received the Nobel Prize for Literature in the year 1948.
+**Thomas Stearns Eliot (1888 – 1965)** was an
+essayist, a critic, a playwright and a pioneering poet
+of the twentieth century. He attended Smith
+Academy in St. Louis and then Milton Academy in
+Massachusetts. He graduated from Harvard University
+and then left for France and the Sorbonne to study
+philosophy. He returned to Harvard and deepened his
+knowledge by reading Indian philosophy and studying
+Sanskrit. He also finished his advanced degree at
+Harvard. Some of his popular poems include ‘The
+Wasteland’, ‘Love Song of J. Alfred Prufrock’, ‘Ash
+Wednesday’, ‘Four Quartets’, ‘Journey of the Magi’
+‘After Strange Gods’ and ‘Naming of Cats’. He won the
+Order of Merit and received the Nobel Prize for
+Literature in the year 1948.
