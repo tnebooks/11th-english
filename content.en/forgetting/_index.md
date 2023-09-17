@@ -36,3 +36,21 @@ At the same time, ordinarily good memory is so common that we regard a man who d
 
 
 She wheeled away the perambulator, picturing to herself his terror when he would come out and find the baby gone. She arrived home, anticipating with angry relish the white face and **quivering** lips that would soon appear with the news that the baby had been stolen. What was her **vexation**, however, when just before lunch her husband came in smiling cheerfully and asking: “Well, my dear, what’s for lunch today?” having forgotten all about the baby and the fact that he had taken it out with him. How many men below the rank of a philosopher would be capable of such absent-mindedness as this? Most of us, I fear, are born with prosaically efficient memories. If it were not so, the institution of the family could not survive in any great modern city.
+
+**About The Author**
+
+**Robert Wilson Lynd (1879 – 1949)**, an Irish writer,
+is one of the greatest essayists of the 20th Century.
+He began his career as a journalist. He penned
+numerousarticles for the leading newspapers and
+magazines like Daily News, The New Statesman and
+Nation. He wrote under the pseudonym ‘YY.’ His essays
+cover a wide range of simple and interesting topics. 
+They are humorous, delightful, ironical and satirical.
+Robert Lynd was awarded with an honorary literary
+Doctorateby Queen’s University, Belfast in 1947. Hewas
+also honoured by the Royal Society of Literature with
+a silver medal and by The Sunday Timeswith a gold
+medal for Belles Lettres. In his essay ‘Forgetting’,
+Robert Lynd takes a humorous look at the nature and
+effects of forgetfulness.
