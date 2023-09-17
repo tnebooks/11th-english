@@ -7,9 +7,12 @@ weight: 13
 What goes around comes around! Every activity in a society, be it development of infrastructure, education, health care etc. demands resources of all kinds. Resources can be mobilized only through human efforts. This effort comes from many different sections of society. Thus, the fruits of development we enjoy today have come about only through the hardwork of many unsung heroes. 
 It is our duty to contribute to development by giving back what we have taken. When a qualified student embarks on his/her career, an element of service should always be a part of motivation. The society has cradled and nurtured every graduate to bloom and spread his/her wings. Graduation is the apt time to give back to society the gains we have obtained.
 
-Read an excerpt from the famous address made by the great leader Arignar Anna, at the Annamalai University, Tamil Nadu, on November 18, 1967, on the occasion of Convocation.
+**Read an excerpt from the famous address made by the great leader Arignar Anna, at the Annamalai University, Tamil Nadu, on November 18, 1967, on the occasion of Convocation.**
 
 Thankful as I am for the unique honour **conferred** on me by this institution. I stand before this august assembly today to deliver the Convocation address, for though it is a pleasure to be present on the happy occasion of greeting the graduates of the year and wishing them all a bright and prosperous future, it is not an easy task to place appropriate guidelines before them.
+
+![alt Former Chief Minister C.N.Anna Durai With Students Of Yale University](14.png)
+**Former Chief Minister C.N.Anna Durai With Students Of Yale University**
 
 The fact that I am conscious of my own limitations gives me a sense of relief, for I shall not attempt to offer original ideas or theories with a special stamp, but only **reiterate** some of the cardinal principles **enunciated** by those who offered their advice in past years, perhaps with annotations here and there, bringing to bear the lay-man’s point of view to the findings of experts in various fields connected with education.
 
@@ -41,33 +44,9 @@ As **inheritors** of that rich legacy, you are best suited to overcome even the 
 
  I am confident that you are being sent into the wide world. With this objective – you are bound to win, for you are adequately equipped with the spirit supplied by this great institution. May your life be a bright one, and may its lustre brighten the entire land! Accept my congratulations and march onwards, towards the land of smiles.
 
+ ![](15.png)
+
 ## About the Author
 
-Dr. Conjeevaram Natarajan Annadurai (15 September 1909 – 3 February 1969), popularly called Arignar Anna was an Indian politician who served as the Chief Minister of Tamil Nadu (1967 – 69). He was a great orator and an acclaimed writer in Tamil. Jawaharlal Nehru hailed him as one of the greatest parliamentarians. He has published several novels, short stories and plays which incorporate political and social themes. C.N. Annadurai was awarded the Chubb Fellowship at Yale University, the first non-American to receive this honour. The same year he was awarded an honorary doctorate from Annamalai University.
+**Dr. Conjeevaram Natarajan Annadurai (15 September 1909 – 3 February 1969),** popularly called Arignar Anna was an Indian politician who served as the Chief Minister of Tamil Nadu (1967 – 69). He was a great orator and an acclaimed writer in Tamil. Jawaharlal Nehru hailed him as one of the greatest parliamentarians. He has published several novels, short stories and plays which incorporate political and social themes. C.N. Annadurai was awarded the Chubb Fellowship at Yale University, the first non-American to receive this honour. The same year he was awarded an honorary doctorate from Annamalai University.
 
-## Glossary:
-**conferred** – granted a title, degree, benefit, or right 
-**reiterate** – say or do again 
-**enunciated** – spoke clearly 
-**ruggedness** – strength, toughness 
-**repositories** – storehouses 
-**emissaries** – deputies 
-**eschewed** – have nothing to do with 
-**autocracy** – government by one ruler 
-**feudal** – having to do with the Middle Ages, old 
-**confronting** – aggressively resisting secluded 
-**spheres** – isolated areas 
-**cloistered** – restricted 
-**perseverance** – continued effort, steadfastness 
-**inherent** – inborn 
-**perils** – dangers and risks 
-**indebted** – obliged to repay 
-**tillers** – persons who produce crops/ raise animals, cultivators 
-**toilers** – workers, people who perform hard physical labour 
-**replenish** – refill 
-**despondent** – depressed, frustrated 
-**sermons** – speeches on moral subjects 
-**endowed** – gifted 
-**crusade** – campaign for a good cause 
-**inheritors** – successors 
-**lustre** – glow of reflected light
