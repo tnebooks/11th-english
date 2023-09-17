@@ -50,7 +50,9 @@ How can you say to me, I am a king?
 
 ## About the Author
 
- William Shakespeare (1564 – 1616), an English poet and playwright is widely regarded as the greatest writer in English language and the world’s pre-eminent dramatist. He was born and brought up in Stratford upon-Avon, Warwickshire. He wrote about 39 plays, 154 sonnets, two long narrative poems, and a few other verses. He was often called England’s National Poet and nicknamed the Bard of Avon. The first publishing of Shakespeare’s works is the ‘The First Folio’. Playwright Ben Johnson wrote a preface to this book including the quote ‘(Shakespeare) is not of an age, but for all time.’ His plays have been translated into every major living language and are constantly studied and performed throughout the world.
+![](20.png)
+
+ **William Shakespeare (1564 – 1616),** an English poet and playwright is widely regarded as the greatest writer in English language and the world’s pre-eminent dramatist. He was born and brought up in Stratford upon-Avon, Warwickshire. He wrote about 39 plays, 154 sonnets, two long narrative poems, and a few other verses. He was often called England’s National Poet and nicknamed the Bard of Avon. The first publishing of Shakespeare’s works is the ‘The First Folio’. Playwright Ben Johnson wrote a preface to this book including the quote ‘(Shakespeare) is not of an age, but for all time.’ His plays have been translated into every major living language and are constantly studied and performed throughout the world.
 
 
 ## Glossary
