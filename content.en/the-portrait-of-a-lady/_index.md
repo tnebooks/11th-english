@@ -55,4 +55,19 @@ We protested. But she ignored our protests. She lay peacefully in bed praying an
 
 We lifted her off the bed and, as is customary, laid her on the ground and covered her with a **red shroud**. After a few hours of mourning we left her alone to make arrangements for her funeral. In the evening we went to her room with a crude stretcher to take her to be cremated. The sun was setting and had lit her room and verandah with a blaze of golden light. We stopped half-way in the courtyard. All over the verandah and in her room right up to where she lay dead and stiff wrapped in the red shroud, thousands of sparrows sat scattered on the floor. There was no chirruping. We felt sorry for the birds and my mother fetched some bread for them. She broke it into little crumbs, the way my grandmother used to, and threw it to them. The sparrows took no notice of the bread. When we carried my grandmother’s corpse off, they flew away quietly. Next morning the sweeper swept the bread crumbs into the dustbin. 
 
+**About The Author**
+
+**Khushwant Singh** is an Indian novelist and lawyer.
+He studied at St. Stephen’s College, Delhi and King’s
+college, London. He joined the Indian Foreign Service
+in 1947. As a writer, he is best known for his keen
+secularism, sarcasm and love for poetry. He served as
+the editor of several literary and news magazines as
+well as two newspapers. Khushwant Singh was awarded
+with Padma Bhushan in 1974, Padma Vibhushan by the
+Government of India and Sahitya Akademi Fellowship by
+Sahitya Academy of India. The Mark of Vishnu, A
+History of Sikhs, The Train to Pakistan, Success
+Mantra, We Indians and Death at my Doorstep are some
+of his brilliant works.
 
