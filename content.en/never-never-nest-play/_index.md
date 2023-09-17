@@ -6,10 +6,7 @@ weight: 18
 Now, read, enact and enjoy the play based on the theme of purchases on instalments. Let’s know how the plot unfolds.
 
 # Characters
-**Jack**
-**Jill, Jack’s wife**
-**Aunt Jane**
-**Nurse**
+![](21`.png)
 
 **Scene:** 
 The **lounge** of JACK and JILL’S Villa at New Hampstead. The essential furniture consists of a table on which are writing materials, and two chairs. As the curtain rises the lounge is empty, but JACK and JILL come immediately, followed by AUNT JANE. 
@@ -180,19 +177,5 @@ The **lounge** of JACK and JILL’S Villa at New Hampstead. The essential furnit
 
 ## About the Author
 
-Cedric Mount is a considerable distinguished playwright of his age. He wrote some thoughtful plays, which include Twentieth Century Lullaby, To cut a Long Short Story Short and Nature Abhors a Vacuum. His one act plays are easy to perform, satirical, witty and insightful. These one act plays expose the shams of contemporary society besides delicately admonishing the guilty.
+**Cedric Mount** is a considerable distinguished playwright of his age. He wrote some thoughtful plays, which include Twentieth Century Lullaby, To cut a Long Short Story Short and Nature Abhors a Vacuum. His one act plays are easy to perform, satirical, witty and insightful. These one act plays expose the shams of contemporary society besides delicately admonishing the guilty.
 
-## Glossary:
-
-**lounge** – a place in a home or public building for leisure activities, living room 
-**cosy** – comfortable 
-**instalment** – one of the parts into which a debt is divided when payment is made at intervals 
-**absurd** – ridiculously unreasonable and meaningless 
-**propose** – intend to do something 
-**realise** – to understand or become aware of 
-**thingummies** – small articles the names of which are not remembered
-**motto** – a short sentence or phrase that expresses a rule guiding the behaviour of a particular person or group
-**endorse** – to make over to
-another 
-**tartar** – a person of irritable temper 
-**possessed** – completely controlled by an evil spirit
