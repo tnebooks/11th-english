@@ -111,4 +111,16 @@ The photographer had pulled a string. The photograph was taken. I could see the 
 
  “Listen!” I interrupted, drawing myself up and animating my features to their full extent and speaking with a **withering scorn** that should have blasted the man on the spot. “Listen! I came here for a photograph– a picture–something which (mad though it seems) would have looked like me. I wanted something that would **depict** my face as Heaven gave it to me, humble though the gift may have been. I wanted something that my friends might keep after my death, to **reconcile** them to my loss. It seems that I was mistaken. What I wanted is no longer done. Go on, then, with your brutal work. Take your negative, or whatever it is you call it–dip it in sulphide, bromide, oxide, cowhide–anything you like–remove the eyes, correct the mouth, adjust the face, restore the lips, reanimate the necktie and reconstruct the waistcoat. Coat it with an inch of gloss, shade it, **emboss** it, gild it, till even you acknowledge that it is finished. Then when you have done all that–keep it for yourself and your friends. They may value it. To me it is but a worthless **bauble**.” I broke into tears and left.
 
+**About The Author**
 
+**Stephen P. H. Butler Leacock – FRSC (1869 – 1944
+**was a Canadian teacher, Political Scientist, Writer
+and Humourist. He was educated at Upper Canada College
+in Toronto and the University of Toronto from which he
+graduated in 1891. He received a Fellowship in
+Political Economy and took his Ph.D. in 1903. Between
+the years 1915 and 1925, he was the best known English
+speaking humorist in the world. He is known for his
+light humour along with criticism of people’s follies
+Sunshine Sketches of a Little Town, Arcadian
+Adventures, With the
