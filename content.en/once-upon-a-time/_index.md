@@ -6,90 +6,91 @@ Once upon a time, son
 
 They used to laugh with their hearts 
 
- And laugh with their eyes: 
+And laugh with their eyes: 
 
- But now they only **laugh with their teeth** 
+But now they only **laugh with their teeth** 
 
- While their **ice-block-cold eyes**  
+While their **ice-block-cold eyes**  
 
- **Search behind my shadow.** 
+**Search behind my shadow.** 
 
  
 
 
 There was a time indeed 
 
- They used to shake hands with their hearts 
+They used to shake hands with their hearts 
 
  But that’s gone, son 
 
  Now they shake hands without hearts 
 
-** While their left hands search 
+**While their left hands search** 
 
- My empty pockets.** 
-
- 
-
-
- “Feel at home!”, “Come again”: 
-
- They say, and when I come 
-
- Again and feel 
-
- At home, once, twice 
-
- There will be no thrice - 
-
- For then I find doors shut on me. 
-
-  So I have learnt many things, 
-
- son I have learned to wear many faces 
-
- Like dresses – home face 
-
- Office face, street face, host face 
-
-** Cocktail face,** with all their ** conforming smiles 
-
- Like a fixed portrait smile.** 
+**My empty pockets**. 
 
  
 
+
+“Feel at home!”, “Come again”: 
+
+They say, and when I come 
+
+Again and feel 
+
+At home, once, twice 
+
+There will be no thrice - 
+
+For then I find doors shut on me.
+
+
+So I have learnt many things, 
+
+son I have learned to wear many faces 
+
+Like dresses – home face 
+
+Office face, street face, host face 
+
+**Cocktail face**, with all their **conforming smiles** 
+
+**Like a fixed portrait smile.** 
+
  
 
- And I have learned too  
+ 
+
+And I have learned too  
 
 To laugh with only my teeth 
 
- And shake hands without my heart 
+And shake hands without my heart 
 
- I have also learned to say “Goodbye”  
+I have also learned to say “Goodbye”  
 
 When I mean **“Good-riddance”:** 
 
- To say “Glad to meet you”  
+To say “Glad to meet you”  
 
 Without being glad; and to say “It’s been 
 
- Nice talking to you”, after being bored 
+Nice talking to you”, after being bored 
 
 
 But believe me, son  
 
 I want to be what I used to be 
 
- When I was like you. I want  
+When I was like you. I want  
 
 To unlearn all these muting things 
 
- Most of all, I want to relearn 
+Most of all, I want to relearn 
 
- How to laugh, for my laugh in the mirror 
+How to laugh, for my laugh in the mirror 
 
- Shows only my teeth like a snake’s bare** fangs!** 
+Shows only my teeth like a snake’s bare**fangs!** 
 
  
 
@@ -97,7 +98,9 @@ To unlearn all these muting things
 
 How to laugh; show me how 
 
- I used to laugh and smile 
+I used to laugh and smile 
+
+Once upon a time when I was like you.
 
 
 
