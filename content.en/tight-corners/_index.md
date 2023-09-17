@@ -89,4 +89,22 @@ When I found my friend I was laughing too, but he became grave at once on seeing
 
 m) The narrator would not forget two things about his friend. What are they?
 
+**About The Author**
+
+**Edward Verrall Lucas, (1868 – 1938)** was an English
+humorist, essayist, playwright, biographer, publisher,
+poet, novelist, short story writer and editor. Born to
+a Quaker family on the fringes of London, Lucas began
+work at the age of sixteen, apprenticed to a
+bookseller. After that he turned to journalism, and
+worked on a local paper in Brighton and then on a
+London evening paper. He was commissioned to write a
+biography of Bernard Barton, the Quaker poet. This led
+to further commissions, including the editing of the
+works of Charles Lamb. Lucas joined the staff of the
+humorous magazine Punch in 1904, and remained there
+for the rest of his life. He was a prolific writer
+most celebrated for his short essays, but he also
+produced verses, novels and plays.
+
 
