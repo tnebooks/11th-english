@@ -19,7 +19,10 @@ Miss Meadows, hugging the knife, stared in hatred at the Science Mistress. Every
 
 The other smiled her sugary smile.
 
-"You look frozen," said she. Her blue eyes opened wide; there came a mocking light in them. (Had she noticed anything?)
+"You look frozen," said she. Her blue
+![](16.png)
+
+ eyes opened wide; there came a mocking light in them. (Had she noticed anything?)
 
  "Oh, not quite as bad as that," said Miss Meadows, and she gave the Science Mistress, in exchange for her smile, a quick **grimace** and passed on. 
 
@@ -94,18 +97,5 @@ On the wings of hope, of love, of joy, Miss Meadows sped back to the music hall,
 And this time Miss Meadows' voice sounded over all the other voices – full, deep, glowing with expression.
 
 ## About the Author
-Kathleen Mansfield Murry (1888 – 1923) was a New Zealand short story writer who wrote under the pen-name Katherine Mansfield. She left New Zealand at the age of 19 and settled in the United Kingdom where she gained the friendship of great writers such as D.H. Lawrence and Virginia Woolf. Bliss and The Garden Party were collections of short stories written by her. She wrote many poems and her collected letters were a great success.
+**Kathleen Mansfield Murry (1888 – 1923)** was a New Zealand short story writer who wrote under the pen-name Katherine Mansfield. She left New Zealand at the age of 19 and settled in the United Kingdom where she gained the friendship of great writers such as D.H. Lawrence and Virginia Woolf. Bliss and The Garden Party were collections of short stories written by her. She wrote many poems and her collected letters were a great success.
 
-## Glossary
-
-**baton** – a thin stick used by a conductor of a music orchestra 
-**drawl** – slow, lazy way of talking 
-**tangles** – a confused mass, twisted 
-**grimace** – expression of disgust on a person's face 
-**accompaniments** – music played to support an instrument, voice or group 
-**contralto** – the lowest female voice 
-**forte** – a musical tone played loudly 
-**crescendo** – a gradual increase in the loudness of a sound 
-**aisle** – a passage between rows of seats 
-**fiancé** – a man to whom one is engaged to be married 
-**doleful - sorrowful
