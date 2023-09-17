@@ -117,7 +117,7 @@ The man from the West unfolded the little piece of paper handed to him. His hand
 
  “Bob, I was at the appointed place on time. When you struck the match to light your cigar I saw it was the face of the man wanted in Chicago. Somehow I couldn’t do it myself, so I went around and got a plainclothes man to do the job.”  
 
-                                - JIMMY
+                                   - JIMMY
 
 **About the Author**
 ![](6.PNG) 
