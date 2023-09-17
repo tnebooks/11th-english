@@ -3,13 +3,17 @@ title: 'The Accidental Tourist'
 weight: 16
 ---
 
-Now, read this amusing story about the frustrations of a globetrotter and find out how he faces chaos in his everyday life. 
+**Now, read this amusing story about the frustrations of a globetrotter and find out how he faces chaos in his everyday life.** 
 
 Of all the things I am not very good at, living in the real world is perhaps the most outstanding. I am constantly filled with wonder at the number of things that other people do without any evident difficulty that are pretty much beyond me. I cannot tell you the number of times that I have gone looking for the lavatory in a cinema, for instance, and ended up standing in an **alley** on the wrong side of a self-locking door. My particular specialty now is returning to hotel desks two or three times a day and asking what my room number is. I am, in short, easily confused.
+
+![](17.png)
 
 I was thinking about this the last time we went en famille on a big trip. It was at Easter, and we were flying to England for a week. When we arrived at Logan Airport in Boston and were checking in, I suddenly remembered that I had recently joined British Airways’ frequent flyer programme. I also remembered that I had put the card in the carry-on bag that was hanging around my neck. And here’s where the trouble started.
 
 The zip on the bag was jammed. So I pulled on it and **yanked** at it, with grunts and frowns and increasing **consternation**. I kept this up for some minutes but it wouldn’t budge, so I pulled harder and harder, with more grunts. Well, you can guess what happened. Abruptly the zip gave way. The side of the bag flew open and everything within — newspaper cuttings and other loose papers, a 14- ounce tin of pipe tobacco, magazines, passport, English money, film — was **extravagantly** ejected over an area about the size of a tennis court.
+
+![](18.png)
 
 I watched dumbstruck as a hundred carefully sorted documents came raining down in a fluttery **cascade**, coins bounced to a variety of noisy oblivions and the now lidless tin of tobacco rolled crazily across the **concourse** disgorging its contents as it went. 
 
@@ -18,6 +22,8 @@ I watched dumbstruck as a hundred carefully sorted documents came raining down i
 It was at this point that my wife looked at me with an expression of wonder — not anger or **exasperation**, but just simple wonder — and said, “I can’t believe you do this for a living.” 
 
 But I’m afraid it’s so. I always have **catastrophes** when I travel. Once on an aeroplane, I leaned over to tie a shoelace just at the moment someone in the seat ahead of me threw his seat back into full recline, and found myself pinned helplessly in the crash position. It was only by clawing the leg of the man sitting next to me that I managed to get myself freed.
+
+![](19.png)
 
 This, however, was not my worst experience on a plane flight. My worst experience was when I was writing important thoughts in a notebook (‘buy socks’, ‘clutch drinks carefully’, etc.), sucking thoughtfully on the end of my pen as you do, and fell into conversation with an attractive young lady in the next seat. I amused her for perhaps 20 minutes with a scattering of urbane bons mots, then retired to the lavatory where I discovered that the pen had leaked and that my mouth, chin, tongue, teeth and gums were now a striking, scrub-resistant navy blue, and would remain so for several days.
 
@@ -37,21 +43,4 @@ I explained to her the close and **venerable** relationship between *Bill and Wi
 
 So I didn’t get my air miles, and I won’t be flying to Bali first class just yet. Perhaps just as well, really. I could never go that long without eating.
 
-## Glossary
 
-**alley** – a narrow passage-way between or behind buildings 
-en famille – (French) as a family 
-**yanked** – pulled with a jerk 
-**consternation** – worry 
-**extravagantly** – excessively 
-**cascade** – waterfall 
-**concourse** – the open central area in a large public building (here ‘airport’) 
-**disgorging** – discharging
-**gashed** – cut deeply 
-**hysterics** – a fit of uncontrollable laughing or crying 
-**exasperation** – irritation 
-**Catastrophe** – a terrible disaster 
-**bons mots** – (French) witty remarks 
-**suave** – polite and sophisticated 
-**venerable** – valued 
-**Bill** – William (the letter W is changed to B and William is called Bill)
