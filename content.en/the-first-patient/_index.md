@@ -569,6 +569,15 @@ Would you like to see some of my holiday photos?
 
 **(Woman 5 follows the Nurse into the surgery.)**     **CURTAIN**
 
+**About The Author**
+
+**Christopher Victor Burgessis known as C.V Burgess**.
+He is a humorous playwright. His situational humour
+intensifies the emotions of the characters in the
+play. His plays usually accommodate a number of
+characters.His famous works are ‘Short Plays for
+Large Classes’, ‘Teach yourself Speech Training’ a‘Classroom Playhouse Verse in Action’
+
 
 
 
