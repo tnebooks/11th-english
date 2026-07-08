@@ -1,9 +1,9 @@
 ---
-title: 'The portrait of a lady'
+title: 'The Portrait Of A Lady'
 categories:
     - the-portrait-of-a-lady
 weight: 1
-summary: "Khushwant Singh is an Indian novelist and lawyer. He studied at St. Stephen's College, Delhi and King's College, London."
+summary: "This chapter is a heartwarming memoir by Khushwant Singh, where he beautifully portrays his grandmother's transformation from a young, lively woman to an old, serene lady, highlighting her deep spirituality and selfless love. It reflects on the changing relationship between the author and his grandmother over the years, capturing the essence of her quiet strength, daily routines, and the emotional bond that transcends time and age."
 
 ---
 
