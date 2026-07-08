@@ -1,7 +1,7 @@
 # hugo server --minify --themesDir ... --baseURL=http://0.0.0.0:1313/theme/design-system/
 
-baseURL = 'http://0.0.0.0:1313/11th-Chemistry/'
-title = '11th Chemistry'
+baseURL = 'http://0.0.0.0:1313/11th-English/'
+title = '11th English'
 theme = 'design-system'
 
 # Book configuration
@@ -32,13 +32,13 @@ style = 'base16-snazzy'
 # And https://gohugo.io/content-management/multilingual/#translation-by-content-directory
 [languages]
 [languages.en]
-title = '11th-Chemistry'
+title = '11th-English'
 contentDir = 'content.en'
 languageName = 'English'
 weight = 1
 
 [languages.ta]
-title = '11th-ரசாயனவியல்'
+title = '11th-ஆங்கிலம்'
 languageName = 'தமிழ்'
 contentDir = 'content.ta'
 weight = 2

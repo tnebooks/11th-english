@@ -1,4 +1,4 @@
-## 11th Chemistry
+## 11th English
 
 ```sh
 git clone https://github.com/gurukulams/design-system ../design-system
